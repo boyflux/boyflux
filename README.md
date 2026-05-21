@@ -4,7 +4,7 @@
 <img width="300" height="300" src="https://files.catbox.moe/8e8q5q.png">
 </p>
 
-　　　　　　　　　　 　　　　　　　　　　　 　　　　　　꒰𓏼´  `𓏼  ྀིᥩ
+　　　　　　　　　　 　　　　　　　　　　　 　　　　　　　꒰𓏼´  `𓏼  ྀིᥩ
 
 <p align="center">
 loki　╰　jiluka　　 　　　　　　　　　　 　　　　　　　　　　 　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　 　　　　　　　　　　　　　　　he　any　angel
